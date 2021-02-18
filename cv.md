@@ -60,7 +60,7 @@ The highest soft skills, the ability to work with any person: from an eccentric 
 ## Level of English
 B2
 
-## Additional infomation
+## Additional information
 
 I am a very active, purposeful person, I graduated from music and art school, got a candidate for master of sports in ballroom dancing, gave three years to shooting, graduated from high school with a gold medal.
 I perceive self-development as a goal, and not as a means of achieving it.
