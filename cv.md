@@ -57,6 +57,8 @@ The highest soft skills, the ability to work with any person: from an eccentric 
 ## Certificats
 * https://udemy-certificate.s3.amazonaws.com/image/UC-3d003240-b21a-42bf-afea-fcb29f31208d.jpg?v=1595683876000
 
+## Level of English
+B2
 
 ## Additional infomation
 
