@@ -64,6 +64,6 @@ B2
 
 I am a very active, purposeful person, I graduated from music and art school, got a candidate for master of sports in ballroom dancing, gave three years to shooting, graduated from high school with a gold medal.
 I perceive self-development as a goal, and not as a means of achieving it.
-Favorite pastime is reading books: in particular, developmental and psychological, and health, I consider physical and mental health to be the most important aspect of productivity.
+Favorite pastime is reading books, in particular: developmental and psychological, and health, I consider physical and mental health to be the most important aspect of productivity.
 The department of psychology at the university is my favorite, I have two scientific papers on psychology in IT and at the moment I am writing the third, so my soft skills are of the highest level.
 
